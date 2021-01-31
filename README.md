@@ -2,6 +2,7 @@
 
 my first shot at developing
 
+just another sad guy
 hi i'm wale, my friends know me as Zinni
 im 20 years old
 born ad bred in Lagos,Nigeria
